@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @somyabanchhore
 - 👀 I’m interested in design, typography, illustration and photography
 - 🌱 I’m currently learning UX desgin
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on design and photography related works
 - 📫 How to reach me through my insta handle- @fotu_wali
 
 <!---
